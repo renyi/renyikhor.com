@@ -1,1 +1,0 @@
-# renyikhor.com
